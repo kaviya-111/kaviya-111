@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @kaviya-111
 - 👀 I’m interested in  semiconductors vlsi .
 - 🌱 I’m currently learning java.
-- 
 - 💞️ I’m looking to collaborate on  any industrial intren.
 - 📫 How to reach me call me 8610515978
 - 😄 Pronouns: u be u.
